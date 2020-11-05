@@ -1,2 +1,2 @@
 It's just a test repo
-Judy Shit
+Judy Beautiful
